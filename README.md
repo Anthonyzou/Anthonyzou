@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+reach me at [💯@💯.kz](mailto:💯@💯.kz)
 <!--
 **Anthonyzou/Anthonyzou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
